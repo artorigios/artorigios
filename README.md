@@ -5,4 +5,4 @@
 - 💞️ You have a possible collab idea in mind? Just hit me up.
 - 📫 You can reach me via mail: s0578938@htw-berlin.de 
 
-Last changed: 22/07/21
+Last changed: 30/07/21
